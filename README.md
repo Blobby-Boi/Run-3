@@ -1,4 +1,4 @@
-# https://lasokar.github.io/Run-3
+# https://blobby-boi.github.io/Run-3
 ## An alterative link to play Run 3 Unblocked
 
 Run 3 is a free online running game in which you try to stay on the track for as long as you can. You can choose from two different modes when playing. In infinite mode, you run for as long as you can. It's your job to try and keep your character from falling off the track. Because if you do, they will end up drifting into the vastness of outer space. Run 3 may start off simple and easy. At first the gaps in the tunnel are easily avoidable, as you can spot them from afar. But as you keep running, the challenge increases. Those easily spotted gaps show up more frequently. Not only that, since you've gained quite a bit of speed, they also come at you much faster. You will need some pretty solid reflexes to help your pudgy friend leap across the bottomess chasms. Make sure you land safely on the other side and keep on running. Be careful, though, if you make so much as a single mistake you will lose your footing and fall through space with no end in sight.
